@@ -1,3 +1,0 @@
-Anna
-DESKTOP-6O6222P 
-martedì 28 marzo 2017  15:36:29
